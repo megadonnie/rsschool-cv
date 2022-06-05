@@ -1,1 +1,1 @@
-# rsschool-cv
+https://megadonnie.github.io/rsschool-cv/cv
